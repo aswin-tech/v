@@ -1,4 +1,4 @@
-Full name was HACKED BY SUKALIKES
+HACKED BY SUKALIKES
 .
 .
 ..
